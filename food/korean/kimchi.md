@@ -33,12 +33,12 @@ After mixing the sauce together, throw it into the fridge.
 
 ## Putting it all together
 
-After your gabbage has turned into this smooth and bendy form, drain away the water and heavily was the gabbage to get rid of all of the excess salt. Then squeeze the excess moisture from the gabbage.
+After your gabbage has turned into this smooth and bendy form, drain away the water and heavily wash the gabbage to get rid of all of the excess salt. Then squeeze the excess moisture from the gabbage.
 
-Throw the gabbages into the same bowl and the sauce, and mix all together **extremely thoroughly**. You'll want every single piece of gabbage to be coated with the sauce.
+Throw the gabbages into the same bowl as the sauce, and mix all together **extremely thoroughly**. You'll want every single piece of gabbage to be coated with the sauce.
 
 Next up, jam the finished product into a fermentation vessel. This can be a glass jar with a sealed lid, or anything you find to be fitting.
 
-Keep the vessels in room temperature for 3-6 days, tasting as you go. After you're happy with the result, move the  jars into your fridge. At this point, you can drain the excess liquids from the kimchi if you want, to have a more crunchy, less saucy kimchi.
+Keep the vessels in room temperature for 3-6 days, tasting as you go. After you're happy with the result, move the jars into your fridge. At this point, you can drain the excess liquids from the kimchi if you want, to have a more crunchy, less saucy kimchi.
 
 Enjoy in the next 2-3 months.
